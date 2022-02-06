@@ -1,1 +1,0 @@
-# canersavak.github.io
